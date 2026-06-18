@@ -6,6 +6,7 @@ i fw my friendsssssss lmaoaoa.♡
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
 go fllw my main @Nyxii0-o !! ♡
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
+
 black lists :
 uh none ? 
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣

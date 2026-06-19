@@ -11,7 +11,7 @@ uh none ?
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
 frienddds : 
 @vulpeshazard
-@dreamfantasyx / @fawnesque / yfarie
+@dreamfantasyx / @fawnesque / @yfarie ( i miss @fawnesque smchh + vulpeshazard 2!!
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
 i fw mike / micheal aftnn♡
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
